@@ -1,1 +1,1 @@
-# Mayara-website
+www.mayarastore.in
